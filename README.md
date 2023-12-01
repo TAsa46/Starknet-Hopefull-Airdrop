@@ -8,3 +8,4 @@ How much will Starknet airdrop to the average user? Top users?
 I'm hoping it'll be at least $5000
 $10,000 would be even better
 Starknet to the moon!!!!!!!
+This may be my last edit
